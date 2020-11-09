@@ -1,1 +1,1 @@
-# Étienne BERSAC
+Voir également [gitlab.com/bersace](https://gitlab.com/bersace)
